@@ -1,4 +1,4 @@
-# Why Automation Matters for Modern Businesses
+# Why Automation Matters for Businesses Modern
 
 Automation has become essential for businesses seeking competitive advantage in today's market.
 
